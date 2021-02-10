@@ -10,4 +10,4 @@ By JJ Harrison (jjharrison89@facebook.com) - Own work, CC BY-SA 3.0, https://com
 
 ## What am I doing?
 
-[Attack on Humans](https://en.wikipedia.org/wiki/Wombat#Attacks_on_humans)
+[Attacks on Humans](https://en.wikipedia.org/wiki/Wombat#Attacks_on_humans)
