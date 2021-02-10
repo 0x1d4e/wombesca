@@ -6,8 +6,8 @@ By JJ Harrison (jjharrison89@facebook.com) - Own work, CC BY-SA 3.0, https://com
 
 ## Who am I?
 
-https://en.wikipedia.org/wiki/Wombat
+[I'M WOMBAT](https://en.wikipedia.org/wiki/Wombat)
 
 ## What am I doing?
 
-https://en.wikipedia.org/wiki/Wombat#Attacks_on_humans
+[Attack on Humans](https://en.wikipedia.org/wiki/Wombat#Attacks_on_humans)
